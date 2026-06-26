@@ -7,3 +7,4 @@ basic dni 𖹭 i block freely<br>
 thank you for reading! 𖹭<br> </p>
 
 > (all arts are mine!!)
+</p>disclaimer: i am a minor (below 16) in case you have minor or under 16 dni... 😭</p>

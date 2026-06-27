@@ -1,3 +1,8 @@
+PLEASE READ THIS LINK! THIS IS GENUINELY IMPORTANT. </p>
+https://helpoutapersonhere.straw.page
+THANK YOU IF YOU TOOK YOUR TIME TO READ.</p>
+
+
 <img width="2115" height="1828" alt="1000008521" src="https://github.com/user-attachments/assets/8ba2c531-40b0-4415-9fb1-c9369b237051" />
 
 > (me and my goated irl fg!!)

@@ -1,16 +1,43 @@
-YOU NEED A CUDDLE BUDDY? IM HERE!!</p>
-PLEASE READ THIS LINK! THIS IS GENUINELY IMPORTANT. </p>
-https://helpoutapersonhere.straw.page
-THANK YOU IF YOU TOOK YOUR TIME TO READ.</p>
 
-<p align="center">ᯓᡣ𐭩 I'll send you my love on a wire! <br>
- c+h freely 𖹭 w2int 𖹭 often offtab<br>
-basic dni 𖹭 i block freely<br>
-thank you for reading! 𖹭<br> </p>
+<div align="center">
 
-</p>disclaimer: i am a minor (below 16) in case you have minor or under 16 dni... 😭</p>
+#  ♡₊˚ Welcome! ᯓᡣ𐭩
+🍨
+**Need a cuddle buddy? 🐾** ♡  
+**I'm here!** ✦ C+H is always appreciated.
 
+zᶻ ૮˶- ﻌ -˶ა⌒)ᦱ  
+♡ **Please check this out!**  
+↳ https://helpoutapersonhere.straw.page  
+*Helping others + donation stuffies.* 🌷  
+Thank you for taking the time to visit!  
+╰────────────────╯
 
-(I need a better readme...)
+𐂯 .ᐟ⸝⸝
 
-(
+**ᯓ★ About Me**
+
+𖹭 C+H freely!  
+𖹭 W2I (Whisper to Interact)  
+𖹭 Often AFK / Offtab  
+𖹭 Basic DNI  
+𖹭 I block freely for my own comfort  
+𖹭 Feel free to say hi!
+
+૮꒰˵• ﻌ •˵꒱ა
+
+> 💌 *"I'll send you my love on a wire."*
+
+૮´˶• ᴥ •˶`ა
+
+⚠️ **Disclaimer**
+
+I am a **minor (-16, +13)**.  
+If you have **minor DNI** or **under-16 DNI**, please don't interact for sakes of your boundaries. Thank you! ♡
+
+˚₊‧꒰ა ♡ ໒꒱ ‧₊˚
+
+Have a wonderful day! 🌸
+
+</div>
+

@@ -41,8 +41,8 @@ If you have **minor DNI** or **under-16 DNI**, please don't interact for sakes o
 
 These are some of the people who make my days a little brighter. ♡
 
-✦ @immune2salmon — Ace Attorney lover.. one of my close friends on pt!! HI SAMMY </p>
-✦ @ingkarlahsaksiakhiratmu — certified smart they/them... AND ALSO CLOSE FRIEND!! HI ARCHIEEE!</p>
+✦ [@immune2salmon](https://github.com/immune2salmon) — Ace Attorney lover.. one of my close friends on pt!! HI SAMMY </p>
+✦ [@ingkarlahsaksiakhiratmu](https://github.com/ingkarlahsaksiakhiratmu) — certified smart they/them in love with kris... AND ALSO CLOSE FRIEND!! HI ARCHIEEE!</p>
 
 ᯓᡣ𐭩 Thank you for sticking around.
 

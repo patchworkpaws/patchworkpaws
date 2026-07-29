@@ -1,3 +1,4 @@
+YOU NEED A CUDDLE BUDDY? IM HERE!!</p>
 PLEASE READ THIS LINK! THIS IS GENUINELY IMPORTANT. </p>
 https://helpoutapersonhere.straw.page
 THANK YOU IF YOU TOOK YOUR TIME TO READ.</p>
@@ -11,3 +12,5 @@ thank you for reading! 𖹭<br> </p>
 
 
 (I need a better readme...)
+
+(

@@ -37,6 +37,17 @@ If you have **minor DNI** or **under-16 DNI**, please don't interact for sakes o
 
 ˚₊‧꒰ა ♡ ໒꒱ ‧₊˚
 
+## ૮꒰˵• ﻌ •˵꒱ა My Favorite People
+
+These are some of the people who make my days a little brighter. ♡
+
+✦ @immune2salmon — Ace Attorney lover.. one of my close friends on pt!! HI SAMMY </p>
+✦ @ingkarlahsaksiakhiratmu — certified smart they/them... AND ALSO CLOSE FRIEND!! HI ARCHIEEE!</p>
+
+ᯓᡣ𐭩 Thank you for sticking around.
+
+૮ - ﻌ • ა𐂯 .ᐟ⸝⸝
+
 Have a wonderful day! 🌸
 
 </div>

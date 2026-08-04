@@ -53,7 +53,7 @@ Have a wonderful day! 🌸
 </div>
 
 ## COOL ARTS OF COLLIE FROM PEOPLE!!
-artfight, gift art, etc
+artfight, gift art, etc (dm/send mess on ata if u want me to take ur art down!)
 
 ### ARTFIGHTS ATTACKS 
 <img width="413" height="420" alt="1000023450" src="https://github.com/user-attachments/assets/5ad7a263-80ec-4d30-bd65-edd44ad4501a" />

@@ -43,7 +43,7 @@ These are some of the people who make my days a little brighter. ♡
 
 ✦ [@immune2salmon](https://github.com/immune2salmon) —  THE Trucy Wright.. ONE OF MY CLOSE FRIENDS ON PT *(and also first since 2024)* !! HI SAMMY </p>
 ✦ [@ingkarlahsaksiakhiratmu](https://github.com/ingkarlahsaksiakhiratmu) — certified smart they/them in love with kris... AND ALSO CLOSE FRIEND!! HI ARCHIEEE!</p>
-✦ [@Primordialwater](https://github.com/Primordialwater) — My build battle notification pal.../hj AND ALSO CLOSE FRIEND !!HELLLO RAMMM!!!! 
+✦ [@Primordialwater](https://github.com/Primordialwater) — My build battle notification pal.../hj AND ALSO CLOSE FRIEND !!HELLLO RAMMM!!!! </p>
 ᯓᡣ𐭩 Thank you for sticking around.
 
 ૮ - ﻌ • ა𐂯 .ᐟ⸝⸝

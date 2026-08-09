@@ -5,7 +5,8 @@
 🍨
 **Need a cuddle buddy? 🐾** ♡  
 **I'm here!** ✦ C+H is always appreciated.</p>
-https://readthisbeforeinteracting.carrd.co/
+https://readthisbeforeinteracting.carrd.co
+
 zᶻ ૮˶- ﻌ -˶ა⌒)ᦱ  
 ♡ **Please check this out!**  
 ↳ https://helpoutapersonhere.straw.page  

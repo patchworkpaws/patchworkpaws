@@ -9,7 +9,7 @@ https://readthisbeforeinteracting.carrd.co
 
 zᶻ ૮˶- ﻌ -˶ა⌒)ᦱ  
 ♡ **Please check this out!**  
-↳ https://helpoutapersonhere.straw.page  
+↳ https://helpouthere.straw.page/  
 *Helping others + donation stuffies.* 🌷  
 Thank you for taking the time to visit!  
 ╰────────────────╯

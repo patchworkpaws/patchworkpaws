@@ -1,6 +1,7 @@
 
 c+h comfort · w2i (offtab often) · basic dni + I block freely </p>
-<img width="621" height="272" alt="1000037105" src="https://github.com/user-attachments/assets/1f37b6ff-7b5d-4c6a-bcac-757bf30f1eb6" />
+<img width="538" height="201" alt="1000037116" src="https://github.com/user-attachments/assets/a5c8b9e1-1c02-46b5-9cb9-25eb06b35c77" />
+
 credits: @ingkarlahsaksiakhiratmu
 I'll make it pretty later ok
 

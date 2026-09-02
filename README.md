@@ -6,8 +6,8 @@ credits: @ingkarlahsaksiakhiratmu
 I'll make it pretty later ok
 
 <details><summary>Cool people you should check out!! U⁠^⁠ｪ⁠^⁠U</summary>
-  @immune2salmon </p>
-  @ingkarlahsaksiakhiratmu </p>
+  @immune2salmon <3 </p>
+  @ingkarlahsaksiakhiratmu <3 </p>
   @Primordialwater </p>
   @Angelforeverwife </p>
   @giszwmeeps </p>

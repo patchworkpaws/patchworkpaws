@@ -1,6 +1,6 @@
 
 c+h comfort · w2i (offtab often) · basic dni + I block freely </p>
-anti-harassment / pro-recovery (I don't tolarate harassment OK?)
+anti-harassment / pro-recovery (I don't tolarate harassment OK? still dni applies.)
 <img width="538" height="201" alt="1000037116" src="https://github.com/user-attachments/assets/a5c8b9e1-1c02-46b5-9cb9-25eb06b35c77" />
 
 credits: @ingkarlahsaksiakhiratmu
